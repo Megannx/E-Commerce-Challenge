@@ -7,3 +7,5 @@ SO THAT my company can compete with other e-commerce companies
 
 ## Submission Video to Application
 
+https://github.com/user-attachments/assets/b766ebae-79f3-4d9b-81e7-4697af21d29e
+
